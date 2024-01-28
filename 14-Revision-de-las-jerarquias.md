@@ -1,6 +1,6 @@
 ![](comunidad-organizada-para-agrafos.png)
 
-# 13 - Revision de las jerarquias
+# 14 - Revision de las jerarquias
 
 Es importante no perder de vista el lugar del hombre cuando especulamos con cambiar el orden de las jerarquias.
 Separar el todo de la parte o poner el foco exclusivamente sobre lo colectivo no se puede hacer ignorando que eso
