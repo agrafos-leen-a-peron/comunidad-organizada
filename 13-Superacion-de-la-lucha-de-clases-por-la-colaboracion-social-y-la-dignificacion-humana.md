@@ -9,9 +9,10 @@ de que, sin llegar a soluciones violentas, estas ideas no solo son deseables sin
 es inexorable.
 
 La lucha de clases, como tal, esta en proceso de desaparicion. Esto ya se veia venir. Estar en lucha constante no
-solo es algo inestable, sino se desgasta a si mismo mientras espera que se alcance una decision. Las clases dirigentes
-de epocas anteriores no podian ignorar que iba a entrar inexorablemente en crisis. La humanidad tenia que evolucionar
-forzosamente hacia nuevas ideas y asi ocurrio. Los focos de violencia que todavia existen muestran el desgaste que
+solo es algo inestable, sino que genera un gran desgasta mientras se desarrolla ese proceso. Las clases dirigentes
+de epocas anteriores no podian ignorar que se iba a entrar inexorablemente en crisis. La humanidad tenia que evolucionar
+forzosamente hacia nuevas ideas y asi ocurrio. Podemos decir que el concepto de la lucha de clases ya es una idea superada.
+Los focos de violencia que todavia existen muestran el desgaste que
 los llevara a su desaparicion o hacia la adopcion de formulas que no llevan a ningun lado. La aspiracion de progreso
 social no tiene nada que ver con esa propaganda ideologica, ni se va a alcanzar alimentando una grieta ideologica.
 La humanidad necesita estar convencida de hacia donde va y de lo que tiene que hacer, y puede darse cuenta de que
