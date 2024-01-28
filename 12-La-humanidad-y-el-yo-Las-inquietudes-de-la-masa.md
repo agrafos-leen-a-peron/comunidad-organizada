@@ -8,7 +8,7 @@ colectivo y anonimo le otorga al coro el papel de expresar los sentimientos de l
 de la antigua Grecia, a menudo usaba el coro en sus obras para representar la voz de la sociedad o la opinion publica.
 
 El coro se convierte entonces en un personaje mas sobre el escenario y como tal, tiene tambien su voz. Podemos hablar, 
-entonces, del yo de la masa, del yo del coro, del yo de la comunidad.
+entonces, que junto al yo del individuo se sube al escenario otro yo: el yo de la masa, del coro, es decir, el yo de la comunidad.
 
 Euripides pone en el escenario, en situacion de igualdad al yo del individuo junto al yo de la comunidad. El yo de la
 comunidad sirve para juzgar los actos del yo del individuo, y como coro, puede expresar su opinion. Es un elemento
