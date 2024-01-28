@@ -116,8 +116,8 @@ para que un acto de libertad este precedido por una consulta a la conciencia.
 La democracia, esa libertad que consiste en pedir la opinion a cada miembro de la sociedad, existe desde mucho antes
 de nuestra epoca. Ahora que la humanidad empieza a conseguir mayores niveles de libertad, cuando las crisis de los 
 hechos empujan a una crisis de las ideas, es cuando se nota de que manera tan imperfecta nuestro
-concepto de libertad y de democracia encajan, o mejor dicho, dejan de encajar, con los ideales de libertad y democracia
-que heredamos de los griegos.
+concepto de libertad y de democracia encajan, o mejor dicho, dejan de encajar, o encajan de manera muy pobre, 
+con los ideales de libertad y democracia que heredamos de los griegos.
 
 > El fondo que le da contenido a la libertad, la autodeterminacion popular, sobreviene a muy larga distancia en el tiempo
 > del prologo politico de la cuestion. Cuando el ideal de humanidad empieza a abrirse paso, cuando la crisis de los
