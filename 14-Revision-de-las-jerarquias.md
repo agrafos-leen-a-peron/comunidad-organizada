@@ -63,19 +63,23 @@ Puede que D'Alembert tuviera razon al anticipar la subordinacion del pensamiento
 los problemas inmediatos, sociales, politicos y economicos produjeron un grado de obnubilacion suficiente como para
 hacer olvidar en el comun de la gente las preguntas trascendentes de la filosofia.
 
-En la humanidad que so�amos el hombre es una dignidad que esta siempre en lucha y con una vocacion indeclinable a
+En la humanidad que so¤amos el hombre es una dignidad que esta siempre en lucha y con una vocacion indeclinable a
 alcanzar formas de vivir mas elevadas. Esto no ocurrira si el intento de alcanzar esa humanidad consiste simplemente
 en amontonar individualidades para que se enfrenten como en una jungla. Dependera de que el hombre este educado y
-formado en la virtud o de que no lo este y sea sojuzgado por el Estado para que alcancemos o no esa humanidad so�ada.
+formado en la virtud o de que no lo este y sea sojuzgado por el Estado para que alcancemos o no esa humanidad so¤ada.
 
 Solo tendremos mayores chances de alcanzar esa humanidad ideal si nos enfocamos en ese punto. Si buscamos alcanzar
 la humanidad como una expresion grupal con necesidades grupales, en vez de a traves del individuo, nos encontraremos
 enseguida sus dos caracteristicas esenciales: *humanidad como crisol de la dignidad y como atmosfera de libertad*.
 
-Si recordamos a Antistenes, veremos que su ideal de libertad no era compatible con ningun ideal razonado de humanidad.
-Hay una libertad que no respeta el interes comun, que es enemiga natural del bien social. No vigoriza al yo en la
-medida que niega el nosotros y ni siquiera es util a si misma para proyectar sobre su actividad una calificacion
-noble.
+Antistenes fue primero un destacado sofista y ya en su madurez conoce a Socrates, se convierte en su principal discipulo, y adopta de el principalmente sus enseñanzas relativas a la etica. Si bien tenia cierta fortuna, era partidario de una vida despojada y ascetica. Creia que la virtud (o arete en griego, un concepto que se traduce mas fielmente como "excelencia personal") podia ser enseñada. Segun Antistenes solo los virtuosos eran realmente nobles.
+
+Se lo considera el fundador de la escuela cinica de la filosofia. Los cinicos se caracterizaban por su desapego de las convenciones y normas sociales y sus actitudes provocadoras. Consideraban que la humanidad estaba corrompida y creian que una vuelta a un estado natural era fundamental para alcanzar la felicidad. Rechazaban los lujos materiales y adoptaban un estilo de vida sencillo y humilde. Creian que la busqueda de comodidades materiales podia desviar a las personas del verdadero camino hacia la felicidad. La autosuficiencia o autarquia era un principio central. Buscaban la independencia de las necesidades materiales  y emocionales, creyendo que la verdadera libertad provenia de la capacidad de contentarse con lo esencial. Los cinicos eran indiferentes a las cuestiones politicas  y a las autoridades de su tiempo. Se consideraban los perros guardianes de la virtud y estaban ahi para ladrarle en la cara a la sociedad, para remarcarles sus errores. 
+Su estilo de vida despojado tambien se asimilaba al espiritu de los perros, viviendo de la mendicidad, durmiendo donde los sorprenda la noche. Por esto se les apodo cinicos, ya que la palabra cinico tiene su raiz en la palabra can: perro. No tenian sentido de la verguenza y ni del pudor. El principal discipulo de Antigenes fue Diogenes de Sinope, tambien conocido como Diogenes el perro. Vivia en un barril de vino, como el personaje del Chavo del 8. Es a partir de la figura de Diogenes de Sinope que se le da nombre al Sindrome de Diogenes, un transtorno del comportamiento que se caracteriza por el total abandono personal y social, asi como por el aislamiento voluntario en el propio hogar y la acumulacion en el de grandes cantidades de basura y desperdicios domesticos.
+
+> Si recordamos a Antistenes, veremos que su ideal de libertad no era compatible con ningun ideal razonado de humanidad.
+> Hay una libertad que no respeta el interes comun, que es enemiga natural del bien social. No vigoriza al yo en la
+> medida que niega el nosotros y ni siquiera es util a si misma para proyectar sobre su actividad una calificacion noble.
 
 Kant sugeria que los individuos, al perseguir fines individuales, contribuyen, sin saberlo, a la realizacion de un
 plan oculto trazado por la Naturaleza (Dios/el Destino/la Providencia). Decia que el historiador no debe proporcionar
