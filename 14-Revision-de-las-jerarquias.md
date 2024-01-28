@@ -97,7 +97,7 @@ Considera que incluso nuestras inclinaciones insociables acaban por resultar fav
 
   > El hombre quiere concordia, pero la Naturaleza sabe mejor lo que le conviene a su especia y quiere discordia.
 
-Pero el hecho de que "la Naturaleza sepa mejor lo que le conviene al conjunto de los hombres" implica una predeterminacion
+Pero acaso el hecho de que "la Naturaleza sepa mejor lo que le conviene al conjunto de los hombres" implica una predeterminacion
 y por consiguiente, una falta de libertad? Kant dice que "Dios completara la imperfeccion de nuestra propia justicia
 por medios que no concebimos, si perseveramos en nuestros esfuerzos hacia el bien". La perseverancia en nuestros
 esfuerzos encaminados hacia la realizacion del progreso moral es la condicion bajo la cual es posible, para nosotros,
