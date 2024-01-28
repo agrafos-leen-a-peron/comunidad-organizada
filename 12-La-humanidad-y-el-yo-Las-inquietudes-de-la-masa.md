@@ -24,8 +24,8 @@ Su enfoque integrador consideraba a la naturaleza y a los seres humanos como par
 Humboldt expuso una vision de la sociedad en la que cada individuo es valorado y tiene la oportunidad de alcanzar
 su maximo potencial. Este ideal se refleja como un todo del que formamos parte y constituye un ideal de humanidad.
 
-Asi que no solo estan en el escenario el hombre como individio, Dios y la comunidad, sino que ahora tambien 
-sube al escenario la naturaleza. Una naturaleza donde tambien cada individuo es importante, desde el caracol al
+Asi que no solo estan en el escenario el hombre como individuo, Dios y la comunidad, sino que ahora tambien 
+sube al escenario la naturaleza. Una naturaleza donde, otra vez, cada individuo es importante, desde el caracol al
 elefante, desde el yuyito mas humilde a la montaña mas majestuosa y es protagonista tambien el valle que se forma
 entre la majestuosidad de esas montañas.
 
