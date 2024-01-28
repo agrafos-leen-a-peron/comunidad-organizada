@@ -93,16 +93,33 @@ individuo dentro de esa sociedad.
 > cabalmente una fase apta para permitir la cesion de los principios rectores que, sin caer todavia sobre la masa,
 > facilitaba a los nuevos grupos dirigentes el esperado desplazamiento del poder.
 
+Si la libertad va a ser permanente es necesario clarificar previamente ciertos conceptos. Si hablamos de libertad
+de los hombres, con su consiguiente estado de necesidad creado por aquellos miembros de la sociedad con mas poder,
+entonces debemos quedar de acuerdo en que esa libertad incluye tambien la de poder rebelarse ante ese poder opresor.
+La posibilidad de elegir no continuar en ese estado de opresion.
+
 > La libertad precisa entonces que se aclaren ciertas cosas si va a ser permanente. Si por sentido de libertad entendemos
 > el acervo palpitante de la humandidad, frente al estado de necesidad dictado por el imperio indiscutido de una
 > fraccion electoral, debemos plantearnos inmediatamente su problema maximo: su incondicion, y sobre todo, su
 > posibilidad de opcion.
 
-Ser libre no es obrar segun se tenga en gana, sino una eleccion entre varias posibilidades profundamente conocidas.
-Y tal vez, en consencuencia, veremos que promulgar ese estado de libertad no fue precedido por el dispositivo social,
-que no disminuyo las desigualdades en los medios de lucha y defensa, ni, mucho menos, por la accion cultural necesaria
-para uqe las posibilidades selectivas inherentes a todo acto verdaderamente libre pudiensen ser objeto de conciencia.
-El fondo que le da contenido a la libertad, la autodeterminacion popular, sobreviene a muy larga distancia en el tiempo
-del prologo politico de la cuestion. Cuando el ideal de humanidad empieza a abrirse paso, cuando la crisis de los
-hechos produce la revolucion de las ideas, vemos que los antiguos enunciados no encajan de manera perfecta con el
-signo de la evolucion. Son esbozos, o reflejos imperfectisimos, de un ideal mucho mas antiguo: el griego.
+Ser libre no es hacer cualquier cosa que uno tenga ganas de hacer. Esa libertad consiste no en hacer cualquier cosa
+sino que es la libertad de elegir entre ciertas opciones disponibles. No se puede promulgar que existe la libertad sin tener
+en cuenta a la comunidad, sin tener dispositivos que equilibren los desbalances de poder, sin moldear la cultura
+para que un acto de libertad este precedido por una consulta a la conciencia.
+
+> Ser libre no es obrar segun se tenga en gana, sino una eleccion entre varias posibilidades profundamente conocidas.
+> Y tal vez, en consencuencia, veremos que promulgar ese estado de libertad no fue precedido por el dispositivo social,
+> que no disminuyo las desigualdades en los medios de lucha y defensa, ni, mucho menos, por la accion cultural necesaria
+> para que las posibilidades selectivas inherentes a todo acto verdaderamente libre pudiensen ser objeto de conciencia.
+
+La democracia, esa libertad que consiste en pedir la opinion a cada miembro de la sociedad, existe desde mucho antes
+de nuestra epoca. Ahora que la humanidad empieza a conseguir mayores niveles de libertad, cuando las crisis de los 
+hechos empujan a una crisis de las ideas, es cuando se nota de que manera tan imperfecta nuestro
+concepto de libertad y de democracia encajan, o mejor dicho, dejan de encajar, con los ideales de libertad y democracia
+que heredamos de los griegos.
+
+> El fondo que le da contenido a la libertad, la autodeterminacion popular, sobreviene a muy larga distancia en el tiempo
+> del prologo politico de la cuestion. Cuando el ideal de humanidad empieza a abrirse paso, cuando la crisis de los
+> hechos produce la revolucion de las ideas, vemos que los antiguos enunciados no encajan de manera perfecta con el
+> signo de la evolucion. Son esbozos, o reflejos imperfectisimos, de un ideal mucho mas antiguo: el griego.
