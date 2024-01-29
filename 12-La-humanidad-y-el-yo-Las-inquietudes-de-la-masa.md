@@ -104,7 +104,8 @@ La posibilidad de elegir no continuar en ese estado de opresion.
 > posibilidad de opcion.
 
 Ser libre no es hacer cualquier cosa que uno tenga ganas de hacer. Esa libertad consiste no en hacer cualquier cosa
-sino que es la libertad de elegir entre ciertas opciones disponibles. No se puede promulgar que existe la libertad sin tener
+sino que es una libertad informada con los elementos necesarios para elegir con criterio entre ciertas opciones disponibles. 
+No se puede promulgar que existe la libertad sin tener
 en cuenta a la comunidad, sin tener dispositivos que equilibren los desbalances de poder, sin moldear la cultura
 para que un acto de libertad este precedido por una consulta a la conciencia.
 
