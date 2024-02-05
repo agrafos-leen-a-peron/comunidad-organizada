@@ -15,7 +15,7 @@ forzosamente hacia nuevas ideas y asi ocurrio. Podemos decir que el concepto de 
 Los focos de violencia que todavia existen muestran el desgaste que
 los llevara a su desaparicion o hacia la adopcion de formulas que no llevan a ningun lado. La aspiracion de progreso
 social no tiene nada que ver con esa propaganda ideologica, ni se va a alcanzar alimentando una grieta ideologica.
-La humanidad necesita estar convencida de hacia donde va y de lo que tiene que hacer, y puede darse cuenta de que
+La humanidad necesita tener fe en su destino y en el camino a seguir, y puede darse cuenta de que
 no se llega a una vida en comunidad terminando con las individualidades, sino reafirmandolas en cuanto a lo que estas
 aportan a la comunidad. De esta manera ese transito a la vida en comunidad se realiza de forma ordenada y implica que
 mientras ocurre, se parezca mas al desarrollo de una nueva era que a un motin. Ahi tenemos a Hegel con su idea del
