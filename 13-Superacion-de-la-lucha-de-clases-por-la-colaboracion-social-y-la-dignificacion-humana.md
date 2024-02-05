@@ -2,7 +2,7 @@
 
 # 13 - Superacion de la lucha de clases por la colaboracion social y la dignificacion humana
 
-No podemos considerar hoy a la lucha de clases por su faceta mas pesimista, la del enfrentamiento a muerte entre el
+No podemos considerar hoy a la lucha de clases por su faceta mas violenta, la del enfrentamiento a muerte entre el
 capital y el trabajo. Existe hoy el consenso de que trabajo y capital son un todo y ese todo es la comunidad y 
 tambien el consenso de que es necesario que trabajen en mancomunion. El mundo esta cada vez mas convencido
 de que, sin llegar a soluciones violentas, estas ideas no solo son deseables sino que tambien su cumplimiento
