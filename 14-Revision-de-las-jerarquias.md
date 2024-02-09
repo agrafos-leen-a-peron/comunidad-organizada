@@ -6,8 +6,8 @@ Es importante no perder de vista el lugar del hombre cuando especulamos con camb
 Separar el todo de la parte o poner el foco exclusivamente sobre lo colectivo no se puede hacer ignorando que eso
 cambia el orden de las jerarquias.
 
-Llegar a la nocion de comunidad no depende tanto de poner el foco en crear la comunidad en si, como de lograr que los
-individuos que la integran alcance un grado que la justifique.
+Evolucionar de la masa a la comunidad no depende tanto de poner el foco en esa evolucion, sino de lograr que el
+individuo que la integra alcance un grado de formacion que justifique ese esfuerzo.
 
 Hegel decia que el hombre no es totalmente libre ya que esta en parte sujeto a sus pasiones, sus prejuicios e impulsos
 inconscientes, es decir que esta apresado por el yugo de la necesidad, algo totalmente opuesto a la libertad. Esto
