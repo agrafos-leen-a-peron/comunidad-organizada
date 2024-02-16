@@ -66,7 +66,7 @@ hacer olvidar en el comun de la gente las preguntas trascendentes de la filosofi
 En la humanidad que so¤amos el hombre es una dignidad que esta siempre en lucha y con una vocacion indeclinable a
 alcanzar formas de vivir mas elevadas. Esto no ocurrira si el intento de alcanzar esa humanidad consiste simplemente
 en amontonar individualidades para que se enfrenten como en una jungla. Dependera de que el hombre este educado y
-formado en la virtud o de que no lo este y sea sojuzgado por el Estado para que alcancemos o no esa humanidad so¤ada.
+formado en la virtud o de que no lo este y sea sojuzgado por el Estado Absoluto o la Maquina para que alcancemos o no esa humanidad so¤ada.
 
 Solo tendremos mayores chances de alcanzar esa humanidad ideal si nos enfocamos en ese punto. Si buscamos alcanzar
 la humanidad como una expresion grupal con necesidades grupales, en vez de a traves del individuo, nos encontraremos
