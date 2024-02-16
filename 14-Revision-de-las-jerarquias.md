@@ -69,7 +69,7 @@ en amontonar individualidades para que se enfrenten como en una jungla. Depender
 formado en la virtud o de que no lo este y sea sojuzgado por el Estado Absoluto o la Maquina para que alcancemos o no esa humanidad so¤ada.
 
 Solo tendremos mayores chances de alcanzar esa humanidad ideal si nos enfocamos en ese punto. Si buscamos alcanzar
-la humanidad como una expresion grupal con necesidades grupales, en vez de a traves del individuo, nos encontraremos
+la humanidad como una expresion colectiva con necesidades colectivas, en vez de a traves del individuo, nos encontraremos
 enseguida sus dos caracteristicas esenciales: *humanidad como crisol de la dignidad y como atmosfera de libertad*.
 
 Antistenes fue primero un destacado sofista y ya en su madurez conoce a Socrates, se convierte en su principal discipulo, y adopta de el principalmente sus enseñanzas relativas a la etica. Si bien tenia cierta fortuna, era partidario de una vida despojada y ascetica. Creia que la virtud (o arete en griego, un concepto que se traduce mas fielmente como "excelencia personal") podia ser enseñada. Segun Antistenes solo los virtuosos eran realmente nobles.
